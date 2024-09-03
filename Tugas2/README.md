@@ -1,6 +1,6 @@
 # Hi! It's Kheysa's Profiles
 
-Nama : Kheysa Novelia Dhafa Ghaida
+Nama                     : Kheysa Novelia Dhafa Ghaida
 
 Tempat dan tanggal lahir : Bantul, 04 November 2004
 
