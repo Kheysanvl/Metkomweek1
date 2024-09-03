@@ -1,6 +1,4 @@
-# Hi! It's Kheysa's Profiles
-
-## 
+# :cherry_blossom: Hi! It's Kheysa's Profiles :cherry_blossom:
 
 ## Biodataku :
 
@@ -21,6 +19,8 @@ Golongan darah : A+
 Hobi : 
 - Menonton Youtube
 - Lettering
+
+##
 
 ## Deskripsi diri :
 
